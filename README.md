@@ -1,0 +1,1 @@
+# kubilaybulduk-PatikaFrontEndBolumSonu
